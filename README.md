@@ -41,7 +41,6 @@ When asked about how you handle stress and pressure at work, it's important to p
 
 In response to the question, you might say:
 
-
 "Working in the IT industry for over seven years, I've experienced my fair share of high-pressure situations. I understand that pressure often comes hand-in-hand with important projects and tight deliverables. Rather than viewing pressure as a negative, I see it as an opportunity to rise to the occasion, much like how diamonds are formed under pressure.
 
 In such situations, I've found that staying calm and maintaining a positive mindset is key. This allows me to focus on the task at hand and ensure the delivery of high-quality work, despite the high stakes.
