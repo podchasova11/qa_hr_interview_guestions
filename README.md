@@ -5,7 +5,6 @@ Answering questions about why you want to join a company and your expectations i
 
 You could respond:
 
-
 "I am drawn to your company because of its strong reputation in the [mobility services, FinTech, HR, etc.] domain. I see this as an opportunity to leverage and further develop my skills in a new and exciting field. I believe that your company's innovative approach to product development and strong customer base aligns with my professional interests and goals.
 
 Furthermore, I am impressed by the impactful work that your company does, which I've learned about through LinkedIn and other social media. The challenging environment and the opportunity to solve complex problems motivate me. I know some people in your company who speak highly of the work culture and the opportunities for growth. This makes me feel that your company would be a great fit for me."
