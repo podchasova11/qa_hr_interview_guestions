@@ -155,5 +155,4 @@ I am not in a position to judge the capabilities of other candidates, as everyon
 
 This response demonstrates your understanding of the job requirements, your relevant skills and experiences, and your motivation to excel in the role builtin.com, smartrecruiters.com. It also shows your humility and respect for other candidates, which are valuable traits in a team member.
 
-
 Where do you see yourself in 5 years?
