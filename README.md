@@ -3,6 +3,7 @@ Why do you want to join us?
 Why are you looking for a change?
 Answering questions about why you want to join a company and your expectations involves demonstrating your understanding of the company's work and expressing your career goals.
 
+
 You could respond:
 
 "I am drawn to your company because of its strong reputation in the [mobility services, FinTech, HR, etc.] domain. I see this as an opportunity to leverage and further develop my skills in a new and exciting field. I believe that your company's innovative approach to product development and strong customer base aligns with my professional interests and goals.
