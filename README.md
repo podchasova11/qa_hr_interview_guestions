@@ -100,6 +100,7 @@ When asked about your willingness to relocate or travel for a job, it's importan
 
 You might say:
 
+
 "Yes, I am open to the possibility of travel or relocation as required by the job. In my previous roles, I have had the opportunity to travel to different states for various projects, which offered me valuable exposure to different work cultures and processes.
 
 I have found that such experiences can provide unique opportunities for personal and professional growth. I am comfortable taking on assignments that require me to work independently or coordinate with off-shore teams.
